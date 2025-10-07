@@ -1,35 +1,116 @@
-# David Bryan Jefferson Salim
+# Jefferson David
 
-Taichung, Taiwan  
+**English Teacher | Music Educator | Financial Trainer**
 
-## Summary
-Business and finance graduate with experience in international trade, education, and event management. Skilled in business operations, communication, and creative project leadership. Currently pursuing further studies to expand the family business internationally.
+📞 +886 979728871
+✉️ [davidbryanjefferson@gmail.com](mailto:davidbryanjefferson@gmail.com)
+📍 Taipei City, Taiwan
 
-## Education
-- B.A. in Information Management — Tamkang University, Taiwan (2021–2025)  
-- TOEIC 945 | TOEFL iBT 95 | ABRSM Certification  
+---
 
-## Experience
+## 🧭 **Professional Summary**
 
-**English Teacher** — Taipei, Taiwan (2021–Present)  
-- Taught English for 2.5+ years to students of various levels.  
-- Developed tailored learning plans to improve communication skills.  
+Versatile educator and trainer with **4+ years of experience** in English and Music instruction, classroom management (up to 30 students), and corporate financial training. Proven ability to design dynamic, cross-cultural curriculum and administrative systems. Seeking to apply adaptable skills in a challenging management or educational role.
 
-**Event Organizer and Musician** — Taipei, Taiwan (2019–Present)  
-- Organized "Cloud9," a large Indonesian live music event in Taipei.  
-- Worked as a session player in various professional music events.  
+---
 
-**Family Business (Paper Industry)** — Indonesia (2018–Present)  
-- Assisted in operations and trade in Southeast Asian and European markets.  
-- Gained practical exposure in finance, trade, and business strategy.  
+## 💼 **Work Experience**
 
-## Skills
-- Business and Finance: Market research, trade operations, strategy  
-- Technical: Microsoft Office, Data Management, Basic Python and SQL  
-- Languages: English (Fluent), Indonesian (Native), Mandarin Chinese (Intermediate)  
-- Creative: Event planning, team coordination, music performance  
+### **English Teacher**
 
-## Achievements
-- Organized and managed large-scale international community events in Taiwan.  
-- Balanced academic performance with teaching and event management.  
-- Contributed to international expansion of the family business.  # README
+**Dr. MVP_Fanzhuo Technology Co., Ltd.** | Taipei City, Taiwan
+📅 *October 2023 – August 2024*
+
+* Delivered high-quality English instruction using diverse teaching media to enhance student engagement and comprehension.
+* Managed comprehensive administrative documentation for student progress and curricular material filing.
+
+---
+
+### **English and Music Private Tutoring** *(Individual 1-1 to Small Groups)*
+
+**Taipei City, Taiwan**
+📅 *2018 – Present (Still Working)*
+
+* Provided customized 1-on-1 and small group instruction in English and Music.
+* Developed tailored content to meet individual learning objectives.
+* Managed full teaching lifecycle including curriculum design, progress tracking, and feedback reporting.
+
+---
+
+### **Employee Financial Trainer**
+
+**PT. Devaroh Sukses Forever** *(Paper-related Manufacturing Industry)* | Indonesia
+📅 *June 2022 – June 2025 (3 Years, 1 Month)*
+
+* Provided comprehensive financial training to employees on corporate finance concepts and individual performance management.
+* Led high-level organizational projects focused on workflow optimization and career development planning.
+
+---
+
+### **English Teacher, Music Teacher**
+
+**Royal Path Academy** *(Primary School Education)* | Indonesia
+📅 *July 2018 – June 2020*
+
+* Managed large primary school classes (up to 30 students) for both English language and formal Music Theory/Performance.
+* Designed, developed, and implemented dynamic lesson plans for two distinct subjects over a two-year period.
+
+---
+
+### **Bartender**
+
+**TIKI Taipei / Zuki’s House**
+📅 *June 2022 – June 2023 / November 2021 – June 2022*
+
+* Managed high-volume bar operations with accuracy and focus.
+* Demonstrated situational awareness and efficiency in complex drink preparation.
+
+---
+
+## 🎓 **Education & Qualifications**
+
+**Master’s Degree (Projected)**
+*Tunghai University* | Taiwan
+📅 *September 2025 – 2027 (Projected)*
+*Department of Business Administration*
+
+**Bachelor’s Degree**
+*Tamkang University* | New Taipei City, Taiwan
+📅 *2020 – September 2024*
+*Department of Information Management*
+
+**High School Diploma**
+*Royal Path Academy* | Indonesia
+📅 *2017 – 2020*
+
+---
+
+## ⚙️ **Skills & Expertise**
+
+### **Instructional Design**
+
+Lesson Planning | Classroom Management | Private Tutoring | Multimedia Integration | Curriculum Development | Event Management
+
+### **Technical & Media**
+
+MS Office Suite (Word, Excel, PPT, Outlook) | Adobe Photoshop | Music Production (Audio Engineering) | Document Management
+
+### **Language Proficiency**
+
+English (Proficient: Speaking, Reading, Writing) | Indonesian (Average) | Chinese (Learning in Progress)
+
+---
+
+## 🏅 **Certifications & Test Scores**
+
+* **TEFL Certification**: On-going
+* **ABRSM (Associated Board of the Royal Schools of Music)**
+
+  * Grade 5 Practical: *Merit*
+  * Grade 5 Theory: *Distinction*
+* **TOEIC**: 950
+* **IELTS iBT (2020)**: 90
+
+---
+
+⭐ *Last Updated: October 2025*
