@@ -10,7 +10,7 @@
 
 ## 🧭 **Professional Summary**
 
-Versatile educator and trainer with over four years of experience in English and Music instruction, classroom management (up to 30 students), and corporate financial training. Skilled in developing cross-cultural curricula and effective administrative systems. Seeking to apply diverse expertise in a dynamic management or educational role.
+Versatile educator and trainer with over four years of experience in English and Music instruction, classroom management (up to 30 students), and corporate financial training. Skilled in developing cross-cultural materials and effective administrative systems. Seeking to apply diverse expertise in a dynamic management or educational role.
 ---
 
 ## 💼 **Work Experience**
