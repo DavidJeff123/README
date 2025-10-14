@@ -108,8 +108,8 @@ English (Proficient: Speaking, Reading, Writing) | Indonesian (Average) | Chines
 
   * Grade 5 Practical: *Merit*
   * Grade 5 Theory: *Distinction*
-* **TOEIC**: 950
-* **IELTS iBT (2020)**: 90
+* **TOEIC**: 945
+* **IELTS iBT (2020)**: 89
 
 ---
 
