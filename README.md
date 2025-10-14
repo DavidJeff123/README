@@ -10,8 +10,7 @@
 
 ## 🧭 **Professional Summary**
 
-Versatile educator and trainer with **4+ years of experience** in English and Music instruction, classroom management (up to 30 students), and corporate financial training. Proven ability to design dynamic, cross-cultural curriculum and administrative systems. Seeking to apply adaptable skills in a challenging management or educational role.
-
+Versatile educator and trainer with over four years of experience in English and Music instruction, classroom management (up to 30 students), and corporate financial training. Skilled in developing cross-cultural curricula and effective administrative systems. Seeking to apply diverse expertise in a dynamic management or educational role.
 ---
 
 ## 💼 **Work Experience**
@@ -29,7 +28,7 @@ Versatile educator and trainer with **4+ years of experience** in English and Mu
 ### **English and Music Private Tutoring** *(Individual 1-1 to Small Groups)*
 
 **Taipei City, Taiwan**
-📅 *2018 – Present (Still Working)*
+📅 *2020 – Present (Still Working)*
 
 * Provided customized 1-on-1 and small group instruction in English and Music.
 * Developed tailored content to meet individual learning objectives.
@@ -40,7 +39,7 @@ Versatile educator and trainer with **4+ years of experience** in English and Mu
 ### **Employee Financial Trainer**
 
 **PT. Devaroh Sukses Forever** *(Paper-related Manufacturing Industry)* | Indonesia
-📅 *June 2022 – June 2025 (3 Years, 1 Month)*
+📅 *June 2023 – June 2025 (3 Years, 1 Month)*
 
 * Provided comprehensive financial training to employees on corporate finance concepts and individual performance management.
 * Led high-level organizational projects focused on workflow optimization and career development planning.
@@ -113,4 +112,3 @@ English (Proficient: Speaking, Reading, Writing) | Indonesian (Average) | Chines
 
 ---
 
-⭐ *Last Updated: October 2025*
