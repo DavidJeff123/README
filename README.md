@@ -4,7 +4,7 @@
 
 📞 +886 979728871
 ✉️ [davidbryanjefferson@gmail.com](mailto:davidbryanjefferson@gmail.com)
-📍 Taipei City, Taiwan
+📍 Taichung City, Taiwan
 
 ---
 
