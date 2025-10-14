@@ -1,6 +1,6 @@
 # Jefferson David
 
-**English Teacher | Music Educator | Financial Trainer**
+**English Teacher | Music Educator **
 
 📞 +886 979728871
 ✉️ [davidbryanjefferson@gmail.com](mailto:davidbryanjefferson@gmail.com)
