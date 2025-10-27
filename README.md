@@ -1,114 +1,84 @@
-# Jefferson David
+DAVID BRYAN JEFFERSON SALIM
 
-**English Teacher | Music Educator **
+TEFL-Certified English Teacher | Music Educator | Cross-Cultural Instructor
+Phone: +886 979-728-871 | Email: davidbryanjefferson@gmail.com
+ | Location: Taichung City, Taiwan
 
-📞 +886 979728871
-✉️ [davidbryanjefferson@gmail.com](mailto:davidbryanjefferson@gmail.com)
-📍 Taichung City, Taiwan
+Professional Summary
 
----
+TEFL-certified English and Music educator with 4+ years of classroom and private teaching experience across Taiwan and Indonesia. Experienced teaching learners from children to adult professionals in both academic and corporate contexts. Skilled in Communicative Language Teaching (CLT), Task-Based Language Teaching (TBLT), and Student-Centered Learning, fostering engagement, fluency, and confidence. Proficient in integrating digital and online teaching tools for hybrid and in-person learning.
 
-## 🧭 **Professional Summary**
+Professional Highlights
 
-Versatile educator and trainer with over four years of experience in English and Music instruction, classroom management (up to 30 students), and corporate financial training. Skilled in developing cross-cultural materials and effective administrative systems. Seeking to apply diverse expertise in a dynamic management or educational role.
----
+Improved overall English proficiency by 15% in one academic year.
 
-## 💼 **Work Experience**
+Taught and managed classrooms of up to 30 students, maintaining high engagement and discipline.
 
-### **English Teacher**
+Maintained a 90% student retention rate across 50+ private learners.
 
-**Dr. MVP_Fanzhuo Technology Co., Ltd.** | Taipei City, Taiwan
-📅 *October 2023 – August 2024*
+Integrated digital tools such as Zoom, Google Classroom, Kahoot, and Canva to enhance interactive learning.
 
-* Delivered high-quality English instruction using diverse teaching media to enhance student engagement and comprehension.
-* Managed comprehensive administrative documentation for student progress and curricular material filing.
+Teaching Experience
 
----
+English Teacher
+Dr. MVP_Fanzhuo Technology Co., Ltd. | Taipei City, Taiwan
+October 2023 – August 2024
 
-### **English and Music Private Tutoring** *(Individual 1-1 to Small Groups)*
+Delivered interactive English instruction to learners of varying ages, from children to adults, using CLT and TBLT methodologies.
 
-**Taipei City, Taiwan**
-📅 *2020 – Present (Still Working)*
+Designed and implemented multimedia lesson plans incorporating videos, games, and real-world examples.
 
-* Provided customized 1-on-1 and small group instruction in English and Music.
-* Developed tailored content to meet individual learning objectives.
-* Managed full teaching lifecycle including curriculum design, progress tracking, and feedback reporting.
+Managed student documentation and performance reports, increasing administrative efficiency by 30%.
 
----
+Private English & Music Tutor (1-on-1 & Small Groups)
+Self-Employed | Taipei City, Taiwan
+2020 – Present
 
-### **Employee Financial Trainer**
+Provided customized instruction to 50+ students, including children, teenagers, and adults.
 
-**PT. Devaroh Sukses Forever** *(Paper-related Manufacturing Industry)* | Indonesia
-📅 *June 2023 – June 2025 (3 Years, 1 Month)*
+Developed tailored English and music lessons to enhance learning outcomes.
 
-* Provided comprehensive financial training to employees on corporate finance concepts and individual performance management.
-* Led high-level organizational projects focused on workflow optimization and career development planning.
+Applied Student-Centered Learning approaches to adapt lessons to individual needs and goals.
 
----
+English & Music Teacher
+Royal Path Academy | Indonesia
+July 2018 – June 2020
 
-### **English Teacher, Music Teacher**
+Managed primary school English and Music classes of up to 30 students, achieving a 25% increase in test performance.
 
-**Royal Path Academy** *(Primary School Education)* | Indonesia
-📅 *July 2018 – June 2020*
+Developed integrated lesson plans combining creativity, phonics, and critical thinking skills.
 
-* Managed large primary school classes (up to 30 students) for both English language and formal Music Theory/Performance.
-* Designed, developed, and implemented dynamic lesson plans for two distinct subjects over a two-year period.
+Coordinated annual concerts and English events involving 200+ participants.
 
----
+Education
 
-### **Bartender**
+Master of Business Administration (GMBA) – In Progress
+Tunghai University, Taichung, Taiwan | Expected 2027
 
-**TIKI Taipei / Zuki’s House**
-📅 *June 2022 – June 2023 / November 2021 – June 2022*
+Bachelor of Information Management
+Tamkang University, New Taipei City, Taiwan | 2020 – 2024
 
-* Managed high-volume bar operations with accuracy and focus.
-* Demonstrated situational awareness and efficiency in complex drink preparation.
+High School Diploma
+Royal Path Academy, Indonesia | 2017 – 2020
 
----
+Certifications
 
-## 🎓 **Education & Qualifications**
+TEFL Certification – Completed
 
-**Master’s Degree (Projected)**
-*Tunghai University* | Taiwan
-📅 *September 2025 – 2027 (Projected)*
-*Department of Business Administration*
+ABRSM (Associated Board of the Royal Schools of Music):
 
-**Bachelor’s Degree**
-*Tamkang University* | New Taipei City, Taiwan
-📅 *2020 – September 2024*
-*Department of Information Management*
+Grade 5 Practical – Merit
 
-**High School Diploma**
-*Royal Path Academy* | Indonesia
-📅 *2017 – 2020*
+Grade 5 Theory – Distinction
 
----
+TOEIC: 945
 
-## ⚙️ **Skills & Expertise**
+IELTS iBT (2020): 89
 
-### **Instructional Design**
+Key Teaching Skills
 
-Lesson Planning | Classroom Management | Private Tutoring | Multimedia Integration | Curriculum Development | Event Management
+Lesson Planning | Classroom Management | Communicative & Task-Based Teaching (CLT/TBLT) | Student-Centered Learning | Student Motivation | Curriculum Design | Educational Technology (Zoom, Google Classroom, Kahoot, Canva) | Assessment & Evaluation | Cross-Cultural Instruction
 
-### **Technical & Media**
+Languages
 
-MS Office Suite (Word, Excel, PPT, Outlook) | Adobe Photoshop | Music Production (Audio Engineering) | Document Management
-
-### **Language Proficiency**
-
-English (Proficient: Speaking, Reading, Writing) | Indonesian (Average) | Chinese (Learning in Progress)
-
----
-
-## 🏅 **Certifications & Test Scores**
-
-* **TEFL Certification**: On-going
-* **ABRSM (Associated Board of the Royal Schools of Music)**
-
-  * Grade 5 Practical: *Merit*
-  * Grade 5 Theory: *Distinction*
-* **TOEIC**: 945
-* **IELTS iBT (2020)**: 89
-
----
-
+English – Advanced | Indonesian – Intermediate | Chinese – Basic (Learning)
